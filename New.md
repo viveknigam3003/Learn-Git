@@ -1,3 +1,3 @@
 #Nayi File
 
-##Isko Upar Bhejo
+##Bhag yahan se
